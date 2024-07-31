@@ -1,0 +1,1 @@
+# asyura10.github.io
